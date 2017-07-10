@@ -15,7 +15,6 @@
 ### Travel Goals
 - Visit at least one place each in North, West, East and South India
 - Stay in a hostel while on travel
-- Bike across Ladakh on a Bullet 
 - Travel without (or minimal) money and make a film about it 
 - Visit every state in India [16/29] 
 - Travel for 1 year straight 
