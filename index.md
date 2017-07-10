@@ -4,7 +4,7 @@
 - Run a 5K
     - Do it in less than 20 minutes 
 - Run a 10K 
-- --Planknjj
+- Plank
   - Plank 120s 
 - Squat 30
 - Complete a Triathlon 
@@ -12,27 +12,16 @@
   - Do 100 pushups in a single set [current: 15]
 - Turn vegan (Currently I am lacto-vegetarian == vegan diet + milk products)
 
-### Adrenaline Rushes
-- Smoke Weed
-- Be lost in a forest
-- Bike across India 
-- Go scuba diving 
-- Climb a Volcano 
-- Fly a water jet 
-
 ### Travel Goals
 - Visit at least one place each in North, West, East and South India
 - Stay in a hostel while on travel
 - Bike across Ladakh on a Bullet 
 - Travel without (or minimal) money and make a film about it 
-- Explore all food joints in Delhi [?] 
 - Visit every state in India [16/29] 
 - Travel for 1 year straight 
 - Visit every continent (Asia, Australia, Africa, Antarctica, Europe, North America, South America (and do something ridiculous here) [2/7]
 
 ### Professional Goals
-- Edit and publish a video all by myself
-    - Edit and publish a video AND make it viral 
 - Start my own comapny 
     - Create a million dollar company 
 - Give a TEDx Talk 
@@ -45,6 +34,17 @@
 - Make Rs. 1,00,000 in a month 
 - Give Rs. 1,00,000 away 
 - Start a Business Incubator 
+- Edit and publish a video all by myself
+    - Edit and publish a video AND make it viral 
+
+### Adrenaline Rushes
+- Smoke Weed
+- Cycle 50km a day
+    - Cycle 100km a day
+- Be lost in a forest
+- Go scuba diving 
+- Climb a Volcano 
+- Fly a water jet 
 
 ### Miscellaneous
 - Be an Extra in a movie 
