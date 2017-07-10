@@ -9,7 +9,7 @@
 - Squat 30
 - Complete a Triathlon 
 - Do 50 pushups in a single set [current: 15]
-  - Do 100 pushups in a single set [current: 15]
+  - Do 100 pushups in a single set 
 - Turn vegan (Currently I am lacto-vegetarian == vegan diet + milk products)
 
 ### Travel Goals
