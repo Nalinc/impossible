@@ -18,7 +18,7 @@
 - Travel without (or minimal) money and make a film about it 
 - Visit every state in India [16/29] 
 - Travel for 1 year straight 
-- Visit every continent (Asia, Australia, Africa, Antarctica, Europe, North America, South America (and do something ridiculous here) [2/7]
+- Visit every continent (Asia, Australia, Africa, Antarctica, Europe, North America, South America (and do something ridiculous here) [3/7]
 
 ### Professional Goals
 - Start my own comapny 
