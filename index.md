@@ -28,6 +28,8 @@ Check this [page](https://impossiblehq.com/the-impossible-list-is-not-a-bucket-l
   - and do something ridiculous there (1/7)
 
 ### Professional Goals
+- Become a Scientist
+    - Build a secret lab at home
 - Start my own comapny 
     - Create a million dollar company 
 - Give a TEDx Talk 
@@ -53,7 +55,10 @@ Check this [page](https://impossiblehq.com/the-impossible-list-is-not-a-bucket-l
 - Fly a water jet 
 
 ### Miscellaneous
-- Be an Extra in a movie 
+- Be an Extra in a movie
+- Buy a Telescope
+- Learn Astrology
+    - and prove it wrong
 - Get something named after me 
 - Leave a Rs 1000 tip at a restaurant 
 - Learn to sing or dance
